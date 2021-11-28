@@ -1,0 +1,27 @@
+# LISTA DE MATERIAL ESCOLAR :school:
+
+- Apontador;
+- Borracha e Ponteira de borracha;
+- Caneta esferográfica/roller/gel;
+- Caneta hidrográfica (hidrocor);
+- Giz de cera;
+- Lápis (preto ou grafite);
+- Lápis de cor;
+- Lapiseira;
+- Marcador de texto;
+- Cola (líquida ou sólida);
+- Corretor adesivo;
+- Corretor em tinta;
+- Compasso;
+- Curva francesa;
+- Esquadro;
+- Normógrafo;
+- Régua;
+- Transferidor;
+- Estojo;
+- Massa de modelar;
+- Massa plástica;
+- Merendeira / lancheira com ou sem seus acessórios;
+- Pasta com aba elástica;
+- Tesoura de ponta redonda;
+- Tinta (guache, nanquim, pintura a dedo plástica, aquarela)
